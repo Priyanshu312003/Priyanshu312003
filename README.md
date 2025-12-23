@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there 👋<br><br>Nice meeting you, I'm Priyanshu!<br><br>💬 Ask me about Web development related stuff<br>📫 How to reach me: Twitter - @Priyanshu23884, Discord-@phantom312003<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
+Hi there 👋<br><br>Nice meeting you, I'm Priyanshu!<br><br>💬 Ask me about Web development related stuff<br>📫 How to reach me: Twitter - @Priyanshu23884, Discord-@phantom312003<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing video games with my friends
 
 
 ## 🌐 Socials:
